@@ -1,4 +1,4 @@
-<p align="center"><img src="https://files.catbox.moe/lagrz0.jpeg">
+<p align="center"><img src="https://files.catbox.moe/rk1ms3.jpeg">
 
 
 
@@ -13,8 +13,5 @@ SHIPS AND DUOS,
 party members
 and
 oomfs!!!
-
-<p align="center"><img src="https://komarev.com/ghpvc/?username=GOODTlMESWITHSCAR&color=6c533f&style=flat-square&label=profile_views" />
-
-<p align="center"><img src="https://files.catbox.moe/za8qlr.png">
+<p align="center"><img src="https://files.catbox.moe/e994y4.png">
 
