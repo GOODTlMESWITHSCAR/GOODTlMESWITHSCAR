@@ -13,5 +13,5 @@ SHIPS AND DUOS,
 party members
 and
 oomfs!!!
-<p align="center"><img src="https://files.catbox.moe/e994y4.png">
+<p align="center"><img src="https://files.catbox.moe/plpls9.png">
 
